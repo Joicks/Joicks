@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm not currently working<br>🌱 I am currently starting over in the world of development<br>⚡ I have the ability to learn and understand quickly.<br>🌱 I m a person with an excellent creativity and perspective
+🔭 I am a graduate from the 8th semester of Computer Engineering, with solid knowledge and experience in web development and graphic design. I am passionate about learning, with a self-taught approach, constantly seeking knowledge, and exploring new technologies. I have excellent teamwork skills and easily adapt to collaborative environments. I have worked as a Freelancer and in both in-person and remote work settings. Committed to gaining experience and contributing to the success of projects.
 
 
 ## 🌐 Socials:
